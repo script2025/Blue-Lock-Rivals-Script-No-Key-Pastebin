@@ -1,0 +1,1 @@
+# Blue-Lock-Rivals-Script-No-Key-Pastebin
